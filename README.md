@@ -7,7 +7,7 @@
 
 - 💞️ I will be adding a full WMS project written in RPGLE soon.
 - 🌱 I’m a singer songwriter, I perform my original songs on YouTube ... visit & subscribe and like..
-- 💞️ I’m looking to collaborate on ...
+
 - 📫 Please check me out on LinkedIn to reach me for contract iSeries RPGLE work.
 
 <!---
